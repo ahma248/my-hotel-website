@@ -1,2 +1,0 @@
-# my-hotel-website
-Subscribe 
